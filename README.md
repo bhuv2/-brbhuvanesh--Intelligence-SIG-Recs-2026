@@ -1,4 +1,4 @@
-# I'm very sorry that I couldnt complete most of the tasks. I was completely swamped in Genesis, Flashmob practice, Flashmob promo media work. I could only start working on this properly from 3rd oct evening, and within the time crunch along with practices going side by side, this is all i could pull off :(("
+# I'm very sorry that I couldnt complete most of the tasks. I was completely swamped in Genesis, Flashmob practice, Flashmob promo media work. I could only start working on this properly from 3rd oct evening, and within this time crunch along with practices going on side by side, this is all i could pull off :(("
 
 # Intelligence SIG Recruitment Tasks 2026
 
